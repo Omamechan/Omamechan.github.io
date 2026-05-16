@@ -1,1 +1,0 @@
-# Omamechan.github.io
